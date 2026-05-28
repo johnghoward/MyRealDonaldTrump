@@ -1,3 +1,157 @@
+---
+
+## May 26, 2026 Update
+
+**Nightly Summary (10:00 PM ET):**
+*   **Tulsi Gabbard Resigns:** The White House confirmed that DNI **Tulsi Gabbard** will step down effective June 30. While citing family reasons, reports suggest she was sidelined by the President over Iran strategy.[8][1]
+*   **Mexico World Cup Move:** In a significant diplomatic snub, President Sheinbaum announced Mexico will host the **Iranian national football team** for the 2026 World Cup after the U.S. refused them entry.
+*   **Oman & Hormuz Tensions:** Trump reportedly threatened **Oman** with military action if they attempted to co-control the Strait of Hormuz with Iran, insisting the waterway remain "international waters."[5]
+*   **Newark Flight Threat:** DHS Secretary Markwayne Mullin threatened to halt international flight processing at **Newark Liberty International Airport** in response to New Jersey's sanctuary city policies.[11]
+*   **Federal NDA Published:** A draft for a "universal nondisclosure agreement" for all 2+ million federal workers was published in the Federal Register to combat "unauthorized leakers."[10]
+*   **Economic Impact:** Oil prices (Brent futures) spiked **4%** following the second wave of strikes in the Strait, as global markets brace for potential supply disruptions.
+
+**Evening Update (7:00 PM ET):**
+*   **Second Wave of Strikes:** The U.S. launched a second wave of "self-defense" strikes against Iranian missile launchers and mine-laying vessels in the Strait of Hormuz. Despite four Iranian casualties, Iran has indicated it will continue peace negotiations mediated by Pakistan and Qatar.[1]
+*   **Paxton Defeats Cornyn:** In a major win for the Trump/MAGA base, Trump-backed Texas Attorney General **Ken Paxton** defeated incumbent Senator John Cornyn in the Republican primary runoff.[6]
+*   **Green Card Policy Shift:** The administration announced a major policy change requiring most immigrants seeking green cards to return to their home countries to apply, ending the practice of "adjusting status" from within the U.S.[4]
+*   **SC Redistricting Setback:** Trump faced a legislative defeat in South Carolina after state senators rejected his push for mid-decade redistricting aimed at splitting Congressman Jim Clyburn’s district.[1]
+*   **Uranium Negotiation Flex:** Trump signaled a potential softening on his demand for the U.S. to seize Iran's uranium, suggesting it could instead be destroyed "in place" under international supervision.[3][4]
+*   **Walter Reed Departure:** The President was seen departing Walter Reed in the late afternoon following his "routine" three-hour assessment. He continues to push for a $1 billion "drone-proof" ballroom project at the White House.[6]
+
+**Key Developments (Earlier Today):**
+...
+
+## May 25, 2026 Update
+
+**Late-Night Breaking (CENTCOM Strikes):**
+*   **Strait of Hormuz Action:** U.S. Central Command (CENTCOM) conducted "defensive strikes" late on May 25 against Iranian boats laying mines and a missile site in Bandar Abbas. Iran denounced the strikes as "bad faith" but confirmed it remains at the negotiating table.[5]
+
+**Evening Update (6:00 PM ET):**
+...
+
+## Summer 2026 Outlook & Preview
+
+**"Salute to America 250" (July 2026):**
+*   **The Great American State Fair:** A 16-day celebration on the National Mall (June 25 – July 10) featuring pavilions from all states and territories, and a 210-foot Ferris wheel.[1]
+*   **July 4th Keynote:** President Trump is scheduled to deliver a major address on the Mall, accompanied by what is promised to be the "largest pyrotechnics display in history."
+*   **National Garden of American Heroes:** A planned dedication or major update for the monument park featuring 250 statues of historical figures.
+*   **FIFA World Cup 2026:** The administration is prioritizing security and diplomacy for the tournament, with the U.S. opening match on July 12 and the final on July 19.
+
+**Midterm Campaigning (August 2026):**
+*   **"Midterm Convention":** Speculation is mounting over an RNC-planned event in Dallas or Las Vegas to rally the base ahead of the November 3 vote.
+*   **Campaign Blitz:** The President is expected to hold weekly rallies in battleground states (Ohio, Georgia, Pennsylvania) to support endorsed candidates.
+*   **Election Integrity:** A new executive order regarding "citizenship verification" for voter rolls is set to take effect on August 1.
+*   **Nuclear Shipping Initiative:** A major push for nuclear-powered commercial shipping has a critical public comment deadline on August 5.
+
+Sources:
+[1] shippingtelegraph.com
+
+---
+
+## June 2026 Mid-Year Update
+
+**Iran War & Global Security:**
+*   **Stalemate & Blockade:** The conflict, which began in February, has transitioned into a "volatile stalemate." The U.S. has maintained a naval blockade of all major Iranian ports, resulting in a global energy crisis with oil prices hovering near **$100 per barrel**.[1][2]
+*   **Nuclear Negotiations:** Trump has shifted his stance, floating a **20-year suspension** of enrichment (down from a permanent halt) in exchange for "real" guarantees. Iran’s stockpile of highly enriched uranium remains the central point of contention.[1][7]
+*   **"Operation Sledgehammer":** The Pentagon has reportedly proposed renaming the campaign "Operation Sledgehammer" to signal a move toward a long-term engagement strategy if the current fragile ceasefire fails.[2]
+
+**Domestic Policy & Midterms:**
+*   **Midterm Referendum:** The 2026 midterms are being framed as a direct referendum on Trump's leadership. Trump is aggressively targeting GOP incumbents who opposed his policies, successfully ousting several in May primaries (Indiana, Louisiana).[2][8]
+*   **Redistricting Battle:** Trump is pushing GOP-led states (Texas, Florida, Mississippi) to perform "mid-decade redistricting." The Supreme Court recently allowed Texas maps projected to add five Republican seats.[1][9]
+*   **Voter Sentiment:** Polling shows a deeply divided nation, split between those rallying around the flag and those concerned by inflation (3.8% in April, 4.2% projected for May) and the "war of choice."[1][4]
+*   **Election Rhetoric:** Trump recently floated the idea of "canceling the elections" due to distrust in the system, a comment the White House later clarified was "facetious."[1]
+
+**Geopolitics & Infrastructure:**
+*   **Post-Beijing Summit:** Analysis of the May summit highlights a "Grand Bargain" where China supports the reopening of the **Strait of Hormuz** in exchange for relief on certain energy sanctions.[1]
+*   **Reflecting Pool Controversy:** The May 22 deadline for the White House reflecting pool renovation was marred by reports of "American Flag Blue" paint bubbling and safety protocol violations by contractors.[2]
+
+Sources:
+[1] youtube.com
+[2] wikipedia.org
+[4] pbs.org
+[7] timesofisrael.com
+[8] politico.com
+[9] britannica.com
+
+---
+
+## May 22, 2026 Update
+
+**Key Developments:**
+*   **Coast Guard Commencement:** On May 20, President Trump delivered the keynote address at the U.S. Coast Guard Academy, focusing on his "new military doctrine" for the Middle East.[1][3]
+*   **Federal Gas Tax Suspended:** Trump announced a suspension of the federal gas tax to mitigate the $4.50/gallon fuel costs caused by the Iran blockade.[4][9]
+*   **Assassination Attempt Case:** Prosecutors filed a response to a motion to disqualify Todd Blanche from the case against Cole Allen, accused of the April assassination attempt.[10]
+*   **Mississippi Redistricting:** A special session began on May 20 to redraw congressional maps in favor of Republican candidates.[1]
+*   **Reflecting Pool Deadline:** The $13.1 million renovation of the White House reflecting pool faced criticism over quality issues ("bubbles and holes") and labor safety as it reached its May 22 completion deadline.[2]
+*   **Geopolitical Analysis:** International outlets (BBC, Al Jazeera) analyzed the "hidden costs" of the Beijing summit, specifically concessions regarding Taiwan's security.[1][4]
+
+Sources:
+[1] wikipedia.org
+[2] theguardian.com
+[3] ctinsider.com
+[4] rigzone.com
+[9] time.com
+[10] theguardian.com
+
+---
+
+## May 19, 2026 Update
+
+**Key Developments:**
+*   **Kentucky Primary Results:** In the most expensive congressional primary in history ($32M), Trump-endorsed **Ed Gallrein** defeated incumbent **Thomas Massie**. Trump had targeted Massie as a "third-rate grandstander." Additionally, **Andy Barr** (Trump-endorsed) won the Republican nomination for the Senate seat being vacated by Mitch McConnell.[11][12]
+*   **Approval Rating New Low:** A *New York Times/Siena* poll released today shows President Trump’s approval rating has fallen to **37%**, a second-term low. Nearly two-thirds of Americans believe the military intervention in Iran was the "wrong decision."[1]
+*   **$1.776 Billion "Anti-Weaponization Fund":** The DOJ officially launched the "Anti-Weaponization" compensation fund for individuals who claim they were "unjustly prosecuted" for political purposes by the previous administration. Senate Democrats have denounced the move as a "slush fund" for MAGA allies.[1][6]
+*   **White House "Ballroom" Tour:** President Trump held an impromptu press conference at the construction site of the new White House Ballroom (replacing the East Wing). He pitched the building as a "drone-proof" shield and drone port for Washington, D.C. security. The administration is seeking **$1 billion** in taxpayer funding for related security features.[2]
+*   **Financial & Fintech Executive Orders:** Trump signed two major Executive Orders: "Restoring Integrity to America’s Financial System," which targets ITIN use by non-work authorized illegal aliens, and a fintech order aimed at cutting red tape for digital asset industries.[3][4]
+*   **Congressional Picnic:** Speaking at the annual Congressional Picnic on the South Lawn, Trump predicted that oil prices would "plummet" once the Iran conflict is resolved and a deal is signed.[6]
+*   **Personnel Changes:** **Kyle Diamantas** was named acting commissioner of the FDA following the departure of Dr. Martin Makary.[6]
+*   **Market Volatility:** Crude oil prices fell by more than **2%** in early Tuesday trading following the news of the postponed military strike on Iran, as immediate supply disruption fears eased.[7]
+*   **"Rededicate 250" National Jubilee:** On Sunday, May 17, President Trump hosted a massive "National Jubilee of Prayer" on the National Mall. Aimed at rededicating America ahead of its 250th anniversary, the event was framed by supporters as a spiritual renewal and by critics (BBC, The Guardian) as a "monarchist pivot" and a "theocratic distraction" from the Iran conflict.[1][2]
+*   **Jones Act Waiver Extension:** On May 18, the administration announced a 90-day extension of the Jones Act waiver. This move is intended to mitigate severe fuel shortages and high energy costs resulting from the ongoing naval blockade in the Strait of Hormuz.[5]
+*   **EU Trade Deadline Looms:** High-stakes negotiations in Brussels reached a fever pitch on May 19 as the July 4 deadline for EU trade compliance approaches. Trump has threatened a **15% across-the-board tariff** on most European goods if terms are not met.[6]
+*   **Energy & The "Iran Quagmire":** International reporting from **Al Jazeera** highlights that Brent crude has topped **$100/barrel** following Trump's rejection of a "maximalist" Iranian ceasefire proposal. Domestic "NO ICE, NO WAR" protests were reported across several U.S. cities on May 17 and 19.[7][3]
+*   **Post-Summit Analysis:** Global analysts are scrutinizing the Beijing Summit's "hidden costs." **The Guardian** reports concerns that Trump may have offered concessions regarding Taiwan's security in exchange for China's assistance in pressuring Tehran.[1]
+
+Sources:
+[1] theguardian.com
+[2] bbc.com
+[3] aljazeera.com
+[5] atlanticcouncil.org
+[6] eurometal.net
+[7] cbsnews.com
+
+---
+
+## Monday, May 18, 2026 Update
+
+**Middle East & Iran Negotiations:**
+*   **Postponed Military Strike:** President Trump announced a postponement of a "scheduled attack" on Iran at the request of regional leaders from Saudi Arabia, Qatar, and the UAE, stating that "serious negotiations" are now underway.[2][3]
+*   **"The Clock is Ticking":** Despite the delay, Trump issued a stern warning on Truth Social, stating that "the clock is ticking" and there "won't be anything left of them" if a deal is not reached quickly. He emphasized that any deal must include "NO NUCLEAR WEAPONS FOR IRAN."[1][2]
+*   **Military Readiness:** The U.S. military remains on standby for a "full, large-scale assault" should the current negotiations fail.[4]
+
+**Healthcare & "TrumpRx" Expansion:**
+*   **Generic Drug Catalog:** At a White House event, Trump announced the addition of over 600 generic medications to **TrumpRx.gov**, a government-facilitated discounted-drug website.[3][5]
+*   **Strategic Partnerships:** The expansion involves partnerships with Amazon Pharmacy, GoodRx, and Mark Cuban’s Cost Plus Drugs. Trump touted the initiative as "the hottest thing in medicine," aimed at addressing affordability ahead of the midterm elections.[5]
+
+**Domestic Policy & Legal Developments:**
+*   **"Anti-Weaponization" Fund:** The administration has established a **$1.776 billion fund** to compensate allies who were prosecuted during what they call the "weaponization" of the government.[1][3]
+*   **IRS Lawsuit:** Trump has dismissed a $10 billion lawsuit against the IRS coinciding with the fund's launch.[3]
+*   **Economic Tensions:** Critics highlight that ordinary Americans are facing roughly 40% higher gas prices since the conflict with Iran began nearly three months ago, despite high oil company profits.[1]
+
+**Political & Election News:**
+*   **GOP Primary Strategy:** Trump is actively campaigning against Republican critics, notably targeting **Thomas Massie** of Kentucky ahead of the Tuesday primary, calling him "unreliable."[6][1]
+*   **China Trade Update:** The White House announced that China has agreed to ramp up purchases of U.S. agricultural products (beef and poultry) to an annualized rate of $17 billion for 2026.[4]
+
+Sources:
+[1] youtube.com
+[2] aljazeera.com
+[3] theguardian.com
+[4] ksat.com
+[5] clickorlando.com
+[6] theguardian.com
+
+---
+
 ## May 16, 2026 Update
 
 **Key Developments:**
@@ -1573,3 +1727,57 @@ Sources:
 [6] newlinesinstitute.org
 [7] youtube.com
 [8] whitehouse.gov
+
+---
+
+## May 12, 2026 (Latest RSS News)
+
+**Key Developments:**
+*   **Foreign Policy & National Security:** Trump dismissed Iran's latest ceasefire proposals as "totally unacceptable." He signaled pressure on China to stop Iranian oil purchases and plans for arms sales to Taiwan.
+*   **Economic Interventions:** Vowed to pause the federal gas tax to counter four-year high fuel prices (.50/gallon); legislation is expected this week.
+*   **Administrative Changes:** Senate expected to confirm **Kevin Warsh** as Fed Chair; plans reportedly approved to fire FDA Commissioner **Marty Makary**.
+*   **Legal & Media:** Suspects in assassination attempts pleaded not guilty; administration sued *The New York Times* for discriminatory employment practices; Truth Social reported a 00M loss.
+*   **Public Health & Infrastructure:** Addressed a hantavirus cluster on a cruise ship (claimed "under control"); lawsuit filed to halt Lincoln Memorial reflecting pool renovations.
+
+Sources: *The Guardian, Al Jazeera, CBS News, The Independent.*
+
+## May 13, 2026 Web Search for "trump"
+
+As of May 13, 2026, President Donald Trump is currently engaged in several high-stakes international and domestic developments:
+
+### **State Visit to China**
+President Trump is currently in **Beijing** for a three-day state visit (May 12–15) with Chinese leader **Xi Jinping**.[1] This is the first visit by a U.S. president to China in nearly nine years.[1][2]
+*   **Primary Focus:** Trade negotiations are the top priority, with Trump seeking deals for China to purchase more American aircraft and agricultural products.[3]
+*   **Key Issues:** Discussions are expected to cover an $11 billion weapons package for Taiwan, cooperation on Artificial Intelligence, and the ongoing conflict in the Middle East.
+*   **Delegation:** He is accompanied by a large group of CEOs from major firms including Goldman Sachs, Meta, and Citigroup.[4]
+
+### **Iran War and Shaky Ceasefire**
+The President has declared that the U.S.-brokered ceasefire with Iran is on **"massive life support"** (giving it a "1% chance of living") after rejecting Tehran's latest peace proposal, which he dismissed as "garbage."[5]
+*   **Military Action:** Trump is considering restarting **Project Freedom**, a U.S. Navy operation to escort oil tankers through the Strait of Hormuz to break the Iranian blockade.[5]
+*   **Nuclear Demands:** The administration is insisting that Iran surrender its stockpile of highly enriched uranium, a condition Iran has so far refused to put in writing.[6]
+
+### **Domestic Economy and Gas Prices**
+To address surging fuel prices—which have hit a national average of over **$4.50 per gallon** due to the Iran war—Trump has proposed a **temporary suspension of the federal gas tax**.[7]
+*   **Legislative Hurdle:** The move requires Congressional approval.[8][7][9] While some Republicans have introduced bills to support it, the proposal faces criticism over its impact on the Highway Trust Fund and the federal deficit.
+
+### **FBI Director Controversy**
+FBI Director **Kash Patel** is currently embroiled in a scandal following a report in *The Atlantic* alleging "excessive drinking" and "unexplained absences" on the job.[10][11][12]
+*   **Senate Grilling:** In a fiery budget hearing on May 12, Patel denied the allegations under oath, calling them a "total farce" and "baseless." He has filed a $250 million defamation lawsuit against the magazine.[11]
+
+### **Other Notable News**
+*   **Ambassador Nomination:** Trump has nominated **Kari Lake** to serve as the U.S. Ambassador to Jamaica.
+*   **White House Construction:** Controversy continues over a $1 billion funding plan for a new **White House ballroom** being built on the site of the demolished East Wing.
+
+Sources:
+[1] wikipedia.org (https://vertexaisearch.cloud.google.com/grounding-api-redirect/AUZIYQE-pueTed74iX_Lm-ICNqjeUoEGINIvI9chUQA7KsKwAJrxA7snZ7LBuktAWgvTggiOH995ER5H7-v3UdrXR6cqVODDj_iuMDvArCCEacGjypUDAjaay_sqOhVE8sJUnHxgK6DMLr_zCa3baz6Ec9462bxiROMoZ01UeQWHmuQFmW0o)
+[2] latimes.com (https://vertexaisearch.cloud.google.com/grounding-api-redirect/AUZIYQFuL5lZdnYTTGkWeHMAUpB91HsixqZHU4EzCWvtTAATJCmxQDxydyzgN1bw9eb_UJFs_K9LBUOmSN5ethI0-CgyzgrU0ulUiKahp64rG6cl3dzqi9wyKMrQNHmaObVURTRoBTXvkdn60wf1bMzknFLvDFmbwnaYlrPzTrxfpqKPmu03z2He0YBFsSBw4F2H-HkbJPY67A==)
+[3] clickondetroit.com (https://vertexaisearch.cloud.google.com/grounding-api-redirect/AUZIYQF0n0O_Vw_pXOw-qvMaeE_JBDj846qo8zAX8VPtV3iKCRO9hr7oYRbKFI3hcUjzKBxJTYTEBIQFd8-8D6WG-M2RsQmMRmhqieZUvtX3FJns6tZXC3wscuOXfd8yi0iKVem0ECGBPC1zWN1rq9w6TxtfQgENyYFZl9Rb1tfFM0CZz2az8kDE3fS7IAgyPkdATx5ezAB79fjfKzotI9AqNl4ZpUVO_Nn3C7yyF9V0JBjKbVhvOeHF3E85fuXidljXYxEY)
+[4] thehindu.com (https://vertexaisearch.cloud.google.com/grounding-api-redirect/AUZIYQE5S4YTYcJ6JQC2NUazixdbO0eN7xkqlqARLuk11jI4qzCG5wR0g9AaihfPInTkeXjdG8ZNsDHuPXZLfiK8Gqf-RPD6AOMTRGOUey3hw6BnyaEoETzsPKVo3OUcoUrq9RWt9VEOXfkMpNcQKxTVZbNcXMdbrBqwZ-qo53bsrQiC9IihUa4vyz4sGvxeonjxV-H-mQgsuFnXgotZ-8dsXh2_-EOM1G4LSOrRIjYRHy_x2e4O8-LWKijQ5G5-tA==)
+[5] theguardian.com (https://vertexaisearch.cloud.google.com/grounding-api-redirect/AUZIYQFgEfntt27Yk8rHa68WOBCnT-c2bfMOyw-DDzmqx9YvzqUL3k-3E6D1pTDWMZMtnGysXFBsePMy9n-bKi_H88qCzZcIpsPfnmCiZVAW7Nonwaz1-MxIPtlAnsjS42vBpvrBUPzZnDwVvDTF16sb_1yGsITpV7MPf07bdNcvBLTREDCuDI9QgzoJWa23u7k4_cGrC9drWMQYiyiNgGeCcp203IZq_N3FQb9US3Tt3sFcBQ==)
+[6] timesofisrael.com (https://vertexaisearch.cloud.google.com/grounding-api-redirect/AUZIYQGTfMu74WL9GOLysEqW_ZNdzcpeEWxN-0i512QchiD73kWtH-yLVg3olb_ADIBg7FzLOkDgvNrstS4-hlu6vxpSrNWWHTKtUGBvrkYunUx__FWhhHV2NrO7kLx_Nnf_ppEWK2n8sZKF3AYsvfmzTV4smXkYWTW3QzdpOVuqZ1-g6QzNGd7DJZMCllsKeGyBSE_Q09f5xZ94h_QoI7Rk6ZSJm4G97sTXv_OA8w==)
+[7] cbsnews.com (https://vertexaisearch.cloud.google.com/grounding-api-redirect/AUZIYQFrApHYkDuE6yyuiGrl4wSnvtKCvCnBRvH7huKVmPC675pPPCgT9X0-0nplhJAWxpc-sZhNdCyNFuOpTKfCmUT5wR2SOqOcIokSSpW1kpHYo8p8814sAbAmZDKCOsXjeOjuB7gd7qEX8HnvlScbtPzdCXqc1tNFfhm3J5Z7cYX5aRvKUMk=)
+[8] washingtonpost.com (https://vertexaisearch.cloud.google.com/grounding-api-redirect/AUZIYQEpiWe4LM1IasMlSt4qAqAuovnGOIS9y38jw24ukDvpdt6xONA2XhMdTAV7n-IQ7mqbA0NdVOe54kBtTW0F87CMnDDXYcg5mozJQwS-P4TQ6EBNo9hQ5QgfPS4TqaQ4BKZK7MbiZMdGCBBy6iq5s9yJBZDc0FhLoPfSTxkl7wC_RjtStgegPKYxQ==)
+[9] pbs.org (https://vertexaisearch.cloud.google.com/grounding-api-redirect/AUZIYQHpUfrzUnanSsEzpk1C5ai94WZ4yUWnpxP_YW5o4EeGWheY_HHu6HxmQgmBgq2FoBjcEnbxK2hSHBTD1CU3NEQ7Q885zIJONT_MCtvLO2TWLCuOjq0biejFG8l2dZMM8P37HWZMFgrnH7-JMUCjBQ6N5HTSWpu8dZKdXA==)
+[10] washingtonpost.com (https://vertexaisearch.cloud.google.google.com/grounding-api-redirect/AUZIYQGrNFb2H8KNB7nDN_x1OLdtmVml9zne5B21yJeI0Myn4nIKqlDXVlgtfeGnOCB4A5oBJy2Jn1xRkFD1HDrBcn_4rS51Hi6-AldhmQXZvwUVcpVSCELX2DOg8MG4Qhl_t_bz6q-rauZywisKIFnPrZt_U9cYZfsjSK0RbE6PQhQxt7QrG9D2IvwOZu9TXplnUL8m0apj03jrKSvDj40-KVaA2nx0vGvzc_7A4RyIc50xjPmpAA==)
+[11] theguardian.com (https://vertexaisearch.cloud.google.com/grounding-api-redirect/AUZIYQEnyNcKvG-009djuYPVOBqvpC5Eqsvm5eBIcBXXEYzIQiDYIb9bmeqsR7pa-wXZTnwl2Qmi7TzFoWFgDOw4--VqDaL0M-YPJ_PiJSbxsx7UTCg9u-WRCXp6ftwusHzENmOfQPda4AfD1Wm-38FHM-0Z8uFT-39cGyEtweXGAPBP1rNMXrkOxEVkQRpI)
+[12] latimes.com (https://vertexaisearch.cloud.google.com/grounding-api-redirect/AUZIYQHCxH4XgLQx6oBk0rnQkRMxYZkV2_BL6IETakFjwpQk92I9F7uXecJ-HnSb5hKxxgALxFScC5nlekrvCilQzabJaUi2PEB48OvIitAH76bKshLRCcZU1vl8jY2RlAcfJNUZQonVP0PZtDDOvtwElPr_qpKaGejMiX_VbsGlXGgsALITFOWBznUBKaYEXBnvR7eU2bhhqzQU-Oo-Wx0LWhzo9ma3GCfh4t38hXN9wKbmMcSGxUoAipssFMuX41Pu5A==)
