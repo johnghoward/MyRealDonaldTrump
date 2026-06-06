@@ -1,5 +1,125 @@
 ---
 
+## June 1, 2026 Update
+
+**Key Developments:**
+*   **Israel-Hezbollah Ceasefire Claim:** President Trump announced that **"all shooting will stop"** between Israel and Hezbollah following calls with PM Netanyahu and Hezbollah representatives. Netanyahu, however, later stated the IDF would continue operations as planned in southern Lebanon.[1]
+*   **Syria Diplomacy:** Trump held a phone call with Syrian President Ahmad al-Sharaa to discuss stability and reconstruction. Al-Sharaa urged the lifting of remaining U.S. sanctions to aid economic recovery.[2]
+*   **Iran Peace Talks Stall:** Participation in planned U.S.-Iran peace talks is uncertain after Iran accused Israel of ceasefire violations. The talks aim to end the blockade of the Strait of Hormuz.[3]
+*   **New Metals Tariffs:** A new proclamation **"Further Adjusting the Tariff Regimes for Imports of Aluminum, Steel, and Copper"** was issued. It sets a 15% rate on agricultural and industrial equipment imports, with a reduced 10% rate for products using at least 85% U.S.-sourced metals.[4]
+*   **"Anti-Weaponization" Fund Battle:** Senate Democrats vowed to "kill" the administration's **$1.8 billion fund** before disbursements begin. A federal judge has already barred the fund's launch pending a later hearing.[5]
+*   **Kennedy Center Rebranding Blocked:** A federal judge ruled that rebranding the Kennedy Center in Trump's name is illegal, stating it must remain dedicated to President John F. Kennedy.[5]
+*   **State Fair Rally:** Following artist withdrawals, Trump suggested canceling the planned concert at the "Great American State Fair" in favor of holding a MAGA rally.[6]
+*   **NBA Finals:** NBA Commissioner Adam Silver confirmed Trump is expected to attend the NBA Finals at Madison Square Garden.
+
+Sources:
+[1] cbsnews.com
+[2] aa.com.tr
+[3] theguardian.com
+[4] whitehouse.gov
+[5] justsecurity.org
+[6] youtube.com
+
+---
+
+## May 31, 2026 Update
+
+**Key Developments:**
+*   **Iran Peace Deal Negotiations:** President Trump insisted that any memorandum of understanding (MoU) must ensure "Iran will not have a Nuclear Weapon." He has reportedly requested personal amendments regarding the securing of Iran's highly enriched uranium and the unrestricted reopening of the **Strait of Hormuz**.[1][2]
+*   **White House Health Memo:** A three-page medical memo released by Dr. Sean Barbabella declared Trump in "excellent health" and "fully fit" for duty. The report noted strong cardiac and neurological functions but advised the President to lose weight and mentioned "lower leg swelling" and "benign" hand bruising.[3]
+*   **IRS Lawsuit Reopened:** A federal judge in Miami reopened Trump's **$10 billion lawsuit against the IRS**, investigating whether a previous $1.8 billion settlement was a "product of collusion."[3] This follows a separate ruling blocking payouts from the **$1.776 billion "Anti-Weaponization Fund."**[4]
+*   **"America Is Back" Rally:** Following artist boycotts of the "Great American State Fair," Trump announced he will personally headline the event with an **"America Is Back" rally**, dismissing the departing musicians as "Third Rate."[5]
+*   **ICE Detention Unrest:** Clashes were reported at the Delaney Hall Immigration Detention Center in New Jersey between federal agents and protesters over a week-long hunger strike and alleged inhumane conditions.[1]
+*   **Diplomatic Friction:** Secretary of State Marco Rubio clarified that no sanctions would be lifted solely in exchange for opening the Strait of Hormuz, contradicting some of Tehran's expectations.[2]
+
+Sources:
+[1] youtube.com
+[2] rferl.org
+[3] theguardian.com
+[4] wsls.com
+[5] wdrb.com
+
+---
+
+## May 30, 2026 Update
+
+**Breaking Developments:**
+*   **Iranian Missile Strike:** Five Americans, including U.S. troops, were reportedly injured in an Iranian missile strike on a U.S. base. The attack occurred as the U.S. Navy maintains its blockade of Iranian ports.[5]
+*   **Ceasefire Negotiation Stalemate:** Despite reports of a tentative deal, President Trump continued to send "mixed signals" following a two-hour Situation Room meeting, leaving the extended ceasefire unsigned as the conflict enters its fourth month.[1]
+*   **Lebanese Protections Extended:** The administration extended deportation protections for approximately **11,000 Lebanese nationals** in the U.S. for an additional six months due to the ongoing regional conflict.
+*   **Netanyahu Coordination:** Trump held a high-level call with PM Netanyahu to discuss a potential truce between Israel and Hezbollah, though accounts of the agreement differed between the two leaders.[1]
+
+---
+
+## May 29, 2026 Update
+
+**Evening Update (9:00 PM ET):**
+*   **"Anti-Weaponization Fund" Blocked:** A federal judge in Virginia temporarily blocked the administration from transferring money into the **$1.8 billion "Anti-Weaponization Fund,"** ruling the freeze necessary to prevent "irreversible" disbursement of taxpayer funds during legal challenges.[2]
+*   **Kennedy Center Name Removal:** U.S. District Judge Christopher Cooper ordered the **removal of Donald Trump’s name** from the Kennedy Center, ruling the venue cannot be renamed without an act of Congress and giving the administration 14 days for compliance.[2]
+*   **Childhood Vaccine Order:** Trump signed an executive order instructing the CDC to **cut recommended childhood vaccines nearly in half**, prompting immediate pushback from public health experts.
+*   **Iran Peace Deal Claims:** Trump posted on Truth Social that he is near a "final determination" on an Iran deal, while reiterating demands for the total elimination of Iran's nuclear program.[3][4]
+
+**Key Developments (Earlier Today):**
+...
+
+## May 28, 2026 Update
+
+**Evening Update (7:00 PM ET):**
+*   **Medal of Sacrifice Act Signed:** President Trump signed **H.R. 3497**, the "Medal of Sacrifice Act of 2025," creating a federal honor for first responders and law enforcement killed in the line of duty.[5]
+*   **Ceasefire Violation:** A tentative 60-day ceasefire MOU with Iran remains unsigned as the U.S. reported that **Kuwait intercepted an Iranian missile** earlier today, an act the administration labeled an "egregious ceasefire violation."[3]
+*   **Oman Diplomatic Follow-up:** Following Trump's military threats earlier today, Treasury Secretary Scott Bessent confirmed that Omani officials have assured the U.S. they have **"no plans for tolling the strait."**[3]
+*   **Memphis Taskforce Lawsuit:** The ACLU of Tennessee filed a lawsuit against a Trump-ordered anti-crime taskforce in Memphis, alleging illegal intimidation of community observers.[6]
+*   **The "$250 Trump Bill":** Further details emerged on the Treasury's design for a $250 bill featuring Trump's portrait. The proposal remains stalled by federal law and fierce opposition from House Democrats.[1][6]
+
+**Key Developments (Earlier Today):**
+*   **Tentative Iran MOU:** Negotiators reached a tentative 60-day Memorandum of Understanding (MOU) to extend the ceasefire and begin formal nuclear talks. President Trump stated the deal is **pending his final approval**.[3]
+*   **Stock Trading Controversy:** Financial disclosures revealed the President's trust executed over **3,700 individual stock trades** in Q1 2026, primarily in energy and defense sectors, sparking unprecedented ethics concerns.[2][8]
+*   **Mail-In Voting Ruling:** A U.S. District Judge refused to block Trump's executive order limiting mail-in voting and directing the creation of a federal voter list.[2]
+*   **Legal Actions:** Trump refiled a **$10 billion defamation lawsuit** against the *Wall Street Journal* over Jeffrey Epstein reporting. Separately, the DOJ reportedly opened an investigation into **E. Jean Carroll**.[1][6]
+*   **Ebola Quarantine Center:** The administration confirmed the opening of an exclusive 50-bed quarantine facility for American citizens in Kenya.[2]
+
+Sources:
+[1] theguardian.com
+[2] pbs.org
+[3] cbsnews.com
+[5] substack.com
+[6] theguardian.com
+[8] pbs.org
+
+---
+
+## May 27, 2026 Update
+
+**Nightly Summary (10:00 PM ET):**
+*   **12th Cabinet Meeting:** President Trump held a wide-ranging session at the White House, serving as both a strategy meeting and a farewell for DNI **Tulsi Gabbard**. Trump praised Gabbard for "restoring trust" in the intelligence community ahead of her June 30 departure.[1][2]
+*   **"Mayor" Trump D.C. Renovations:** In a 10-minute technical tangent, Trump detailed specific beautification plans for Washington, D.C., discussing pebble-blasting techniques for local pools and the repair of brick fountains at the WWII Memorial.[5][6]
+*   **Cabinet Meeting Gaffe:** During remarks on the Iran conflict, Trump briefly misspoke, referring to the target of military operations as **"Venezuela"** before correcting himself.[3]
+*   **Iran "Outwaiting" Claim:** Trump accused Tehran of stalling peace talks to reach the November midterms, insisting the U.S. will not accept a "crummy" deal and threatening that the Strait of Hormuz must remain open "or we'll have to blow them up."[1][4]
+*   **Anti-"Woke" Grant Policy:** The administration moved to grant political appointees more oversight over federal grants to ensure an end to "woke" funding and redirect resources to "Task Force to Eliminate Fraud" priorities.[7]
+*   **Economic Claims:** Trump touted 68 all-time stock market highs since his election and claimed that drug discounts on the "trumpx.gov" portal are at record levels.
+
+**Key Developments (Earlier Today):**
+*   **Cabinet Meeting & Iran Strategy:** President Trump accused Iran of trying to "out-wait" him until the midterm elections. He dismissed the strategy, stating, "I don't care about the midterms," and noted Iran's economy is in "free fall" with 250% inflation.[1][2]
+*   **Strait of Hormuz & Sanctions:** Trump announced that any deal must ensure the Strait remains "open to all nations." He explicitly stated there are currently no discussions regarding the easing of sanctions on Tehran.[3]
+*   **Peace Proposal Dismissed:** The White House dismissed a draft peace proposal reported by Iranian media (involving U.S. withdrawal for commercial shipping access) as a "total fabrication."[3]
+*   **Paxton Victory Celebration:** Trump celebrated the win of Ken Paxton over Senator John Cornyn in Texas, citing it as proof of his grip on the GOP. Analysts described the win as part of a broader "purge" of establishment Republicans.[1][4]
+*   **Sanctuary City Flight Restrictions:** The administration is drafting plans to halt international flight processing in major "sanctuary cities" as retaliation for local protests and non-cooperation with ICE.[1]
+*   **Tariff Refunds:** The government began paying out **$20 billion** in tariff refunds following a Supreme Court ruling that the administration overstepped its authority; total payouts are expected to reach $85 billion.[5]
+*   **Space & Infrastructure:** New details were released for robotic landers and vehicles for a permanent Moon base, aiming for a lunar landing before the end of Trump's term in 2029.[4]
+*   **Prediction Markets:** Trump attacked state-level efforts to regulate the prediction market industry, calling federal control "critically important."[1]
+
+Sources:
+[1] theguardian.com
+[2] cfr.org
+[3] aljazeera.com
+[4] drydenwire.com
+[5] theguardian.com
+[6] citynews.ca
+[7] wsls.com
+[8] apnews.com
+
+---
+
 ## May 26, 2026 Update
 
 **Nightly Summary (10:00 PM ET):**
