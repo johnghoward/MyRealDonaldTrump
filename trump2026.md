@@ -1,5 +1,25 @@
 ---
 
+## June 2, 2026 Update
+
+**Key Developments:**
+*   **AI Policy Shift:** President Trump signed the Executive Order **"Promoting Advanced Artificial Intelligence Innovation and Security,"** requesting that leading AI firms voluntarily submit their most capable models for 30-day government cybersecurity testing before public release.[1]
+*   **Iran Negotiation Impasse:** Trump dismissed the U.S.-Iran peace talks as **"very boring"** and stated he "couldn't care less" if they collapsed. Reports surfaced of a tense phone call with PM Netanyahu, with Trump reportedly "fuming" over Israeli escalations that threatened the dialogue.[2][3]
+*   **Intelligence & DOJ Moves:** Trump appointed **Bill Pulte** as Acting Director of National Intelligence (DNI) with instructions to "scale back" the office. He also announced his intention to nominate Acting AG **Todd Blanche** as the permanent Attorney General following Blanche's House testimony.[3][4][5]
+*   **"Weaponization Fund" Blocked:** The administration confirmed it would comply with a federal court ruling that temporarily blocked the **$1.8 billion "Anti-Weaponization Fund"** intended to compensate Trump allies.[2]
+*   **Public Absence:** June 2 marked the **sixth consecutive day** Trump has not made a formal public appearance, though he remains active on social media and in private diplomacy.
+*   **Super Tuesday Primaries:** High-stakes Republican primaries were held in six states: California, Iowa, Montana, New Jersey, New Mexico, and South Dakota.[3]
+*   **Administrative Focus:** Dr. Mehmet Oz held a press briefing focused on Medicare fraud and "crushing waste," while facing questions about the President's whereabouts and foreign policy friction.
+
+Sources:
+[1] thedailyrecord.com
+[2] youtube.com
+[3] meidasplus.com
+[4] theguardian.com
+[5] opb.org
+
+---
+
 ## June 1, 2026 Update
 
 **Key Developments:**
