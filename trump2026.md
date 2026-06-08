@@ -1,5 +1,25 @@
 ---
 
+## June 3, 2026 Update
+
+**Key Developments:**
+*   **House War Powers Rebuke:** The U.S. House of Representatives voted 215–208 to pass a war powers resolution aimed at forcing the President to obtain congressional approval for military action against Iran or withdraw U.S. forces. Four Republicans joined Democrats in passing the measure, which now moves to the Senate.[1][2]
+*   **Federal Workforce Reform:** President Trump signed a major Executive Order creating a new **"Schedule Policy/Career"** classification. This reclassifies approximately 8,000 senior career federal positions (GS-15 and above) as "at-will" employees, significantly easing the process for removal or discipline.[3]
+*   **New Global Tariffs:** The administration announced plans to impose new tariffs of **10% to 12.5%** on 60 trading partners, including the UK, EU, and Australia, citing "forced labor" failures as the official justification.[1]
+*   **Iran Negotiations & Blockade:** Despite the House vote, Trump stated that negotiations with Tehran are "progressing." He noted that the naval blockade of the Strait of Hormuz remains in place and could potentially last through Labor Day.[1]
+*   **Netanyahu Friction:** Reports surfaced of a heated phone call in which Trump reportedly called PM Netanyahu **"crazy"** over military strikes in Lebanon that threatened to derail U.S.-Iran diplomatic efforts.[4]
+*   **AI Vetting Order:** A new executive order was signed requiring national security vetting for top-tier AI models.[1]
+*   **DOJ Fund Scrapped:** The administration officially moved to scrap the controversial $1.8 billion fund intended to compensate allies, while Senate Republicans dropped a $1 billion request for security upgrades at a Trump-owned ballroom.[1]
+*   **Reflecting Pool Completion:** Trump celebrated the completion of the "Great Reflecting Pool" renovation in D.C., stating the water would begin flowing this afternoon.
+
+Sources:
+[1] apnews.com
+[2] theguardian.com
+[3] whitehouse.gov
+[4] sbs.com.au
+
+---
+
 ## June 2, 2026 Update
 
 **Key Developments:**
