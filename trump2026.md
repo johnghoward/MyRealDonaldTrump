@@ -1,5 +1,26 @@
 ---
 
+## June 4, 2026 Update
+
+**Key Developments:**
+*   **$700 Million Coal Initiative:** President Trump invoked the **Defense Production Act** to tap $700 million in funding for the coal industry. The plan includes keeping 14 coal plants and 42 mines operational and building a massive export terminal.[3]
+*   **Attorney General Nomination:** Trump formally announced the nomination of **Todd Blanche**, his former personal attorney and current acting AG, as the permanent U.S. Attorney General.[2]
+*   **War Powers Defiance:** Following the House's 215–208 vote to pass a War Powers Resolution regarding Iran, Trump dismissed the move as "meaningless" and a product of "Trump Derangement Syndrome." Four Republicans joined Democrats in the vote.[2][4]
+*   **California Election Fraud Claims:** Trump alleged "BIG cheating" by Democrats in California's local and state elections, specifically citing races involving Republican Steve Hilton and Spencer Pratt.[2]
+*   **John Bolton Plea Deal:** Reports indicate former National Security Adviser **John Bolton** has agreed to plead guilty to one count of retaining classified information, likely avoiding prison time.[7]
+*   **Middle East Diplomacy:** Trump stated a peace deal with Iran could happen "this weekend." Meanwhile, the State Department confirmed a new ceasefire agreement between **Israel and Lebanon**.[5]
+*   **Sanctions on Cuba:** The Treasury Department announced new sanctions against Cuban President Miguel Díaz-Canel and four other officials.[7]
+*   **Economic Strain:** U.S. jobless aid filings hit their highest level since the start of the Iran conflict in February, reflecting sustained economic pressure.[7]
+
+Sources:
+[2] drydenwire.com
+[3] nampa.org
+[4] wsls.com
+[5] youtube.com
+[7] apnews.com
+
+---
+
 ## June 3, 2026 Update
 
 **Key Developments:**
