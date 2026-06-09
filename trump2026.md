@@ -1,5 +1,25 @@
 ---
 
+## June 5, 2026 Update
+
+**Key Developments:**
+*   **Senate Immigration Victory:** In a 5:00 AM "vote-a-rama," the Senate passed a **$70 billion immigration bill** to fund ICE and DHS for the remainder of Trump's term, ending a partial government shutdown. The bill passed 52-47 with no Democratic support.[1]
+*   **Wisconsin Visit & Interview Walkout:** During a visit to Chippewa Falls, President Trump abruptly ended a *Meet the Press* interview with Kristen Welker after being challenged on Jan 6 and California primary claims. He later cited "fake news" and poor weather (the interview was held in a barn during a rainstorm) for his frustration.[3]
+*   **AI Military Mandate:** Trump issued a directive for the U.S. military and national security agencies to **accelerate AI adoption** to maintain a global competitive edge while maintaining oversight of autonomous systems.[2]
+*   **Pardon of Stephen Buyer:** The President granted a full pardon to former Republican Congressman **Stephen Buyer**, who had been convicted of insider trading.[4][5]
+*   **Intelligence & Hospital Crackdowns:** Bill Pulte was appointed acting DNI with a mandate to "scale back" the office. Separately, the administration warned over **500 hospitals** for failing to comply with price transparency requirements.[1]
+*   **Strait of Hormuz Tensions:** The White House blamed Iran for the downing of a U.S. Army Apache helicopter earlier this week, even as they defended the new Israel-Lebanon ceasefire agreement.
+*   **Weekend at Bedminster:** Following his Wisconsin events, the President traveled to his golf club in New Jersey for the weekend.
+
+Sources:
+[1] theguardian.com
+[2] apnews.com
+[3] time.com
+[4] apnews.com
+[5] wsls.com
+
+---
+
 ## June 4, 2026 Update
 
 **Key Developments:**
