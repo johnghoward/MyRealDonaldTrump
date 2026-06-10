@@ -1,5 +1,26 @@
 ---
 
+## June 6, 2026 Update
+
+**Key Developments:**
+*   **Iran War & "Project Freedom" Pause:** President Trump stated the war is "going well" but acknowledged a negotiation deadlock. He recently paused **"Project Freedom"** (U.S. guidance for commercial ships in the Strait of Hormuz) to evaluate peace deal prospects.[1][2]
+*   **"No New Wars" Defense:** In an interview, Trump dismissed claims that the Iran conflict violates his campaign promises, stating he "didn't guarantee" no war and arguing the three-month conflict is not an "endless war."[3]
+*   **May Jobs Report:** Trump touted 172,000 new jobs in May, calling them the strongest numbers of his administration. However, this comes amid rising gas prices (averaging $4.11/gallon) and a Wall Street sell-off.[4]
+*   **California Primary Fraud Claims:** Trump continued to allege "mass fraud" in California's primary elections as vote counting proceeds, specifically targeting the LA mayor's race.[5]
+*   **D-Day Anniversary:** The White House issued a presidential message marking the **82nd anniversary of D-Day**. Defense Secretary Pete Hegseth represented the administration in Normandy.[2]
+*   **"UFC Freedom 250" Lawsuit:** A lawsuit was filed to block an Ultimate Fighting Championship event Trump plans to host at the White House on June 14 to celebrate Flag Day and his 80th birthday.[6]
+*   **AI National Security Directive:** Trump signed **NSPM-11**, a historic directive aimed at maintaining U.S. leadership in AI talent and technology within the national security enterprise.
+
+Sources:
+[1] youtube.com
+[2] youtube.com
+[3] opb.org
+[4] youtube.com
+[5] theguardian.com
+[6] theguardian.com
+
+---
+
 ## June 5, 2026 Update
 
 **Key Developments:**
