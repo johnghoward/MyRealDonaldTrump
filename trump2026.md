@@ -1,5 +1,25 @@
 ---
 
+## June 7, 2026 Update
+
+**Key Developments:**
+*   **Iran-Israel Escalation:** Iran launched missiles toward Israel for the first time since April in retaliation for Israeli strikes in Beirut. President Trump, speaking from New Jersey, urged Israeli restraint while stating the U.S. is "very close" to a peace deal but prepared to act "one way or the other."[1]
+*   **U.S. Military Action:** The U.S. military engaged and shot down Iranian radar systems and drones in the Strait of Hormuz following Iranian attacks on U.S. allies in the Gulf (Kuwait and Bahrain).[2][3][4]
+*   **World Cup & NBA Finals:** Trump met with FIFA President Gianni Infantino ahead of the June 11 World Cup kickoff. He is also scheduled to attend Game 3 of the NBA Finals at Madison Square Garden on June 8, prompting massive security lockdowns.[1][5]
+*   **"Meet the Press" Interview:** In an interview taped in Wisconsin and aired today, Trump defended the Iran conflict against "endless war" criticisms, stating the three-month campaign is not an endless war and that he "didn't guarantee" no war during his campaign.[3]
+*   **White House Combat Sports:** Preparations continued for a martial arts event in the White House garden to celebrate the President's upcoming 80th birthday (June 14).
+*   **Federal Workforce Overhaul:** The administration continued the implementation of executive orders reclassifying thousands of senior federal positions as "at-will" employees to ensure alignment with presidential directives.[6]
+
+Sources:
+[1] youtube.com
+[2] theguardian.com
+[3] cbsnews.com
+[4] youtube.com
+[5] youtube.com
+[6] whitehouse.gov
+
+---
+
 ## June 6, 2026 Update
 
 **Key Developments:**
