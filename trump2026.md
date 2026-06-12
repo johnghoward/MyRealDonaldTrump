@@ -1,5 +1,25 @@
 ---
 
+## June 8, 2026 Update
+
+**Key Developments:**
+*   **NBA Finals Attendance:** President Trump attended **Game 3 of the NBA Finals** at Madison Square Garden (Knicks vs. Spurs), making history as the first sitting U.S. president to attend an NBA Finals game. He was met with heavy and sustained booing when shown on the jumbotron, though he later claimed the reception was "mostly cheers."[1][2][3]
+*   **Iran Conflict Escalation (Operation Epic Fury):** On the 101st day of the war, direct missile exchanges occurred between Israel and Iran. Iran launched multiple ballistic missiles toward Israel in retaliation for strikes in Beirut; Israel responded by striking missile and air defense sites in western Iran.[5][2]
+*   **"Stop Shooting" Order:** Trump issued a blunt demand on Truth Social for both sides to **"immediately stop 'shooting',"** claiming a final peace deal was "very close" and that Iranian officials had contacted him seeking a ceasefire.[5]
+*   **Ultimatum to Netanyahu:** Reports surfaced that Trump warned PM Netanyahu he would be **"on his own very soon"** if Israeli strikes continued to threaten U.S.-led ceasefire negotiations.[3][5]
+*   **Security & Local Impact:** Trump's NYC visit prompted "ultra-tight" security, including a 10-foot perimeter fence around Madison Square Garden and the cancellation of public outdoor watch parties.[2][4]
+*   **Economic & International Response:** U.S. markets closed lower due to regional war risks. The EU announced its first-ever **"freedom of navigation" sanctions** against Iran in response to the ongoing blockade of the Strait of Hormuz.[5][9]
+
+Sources:
+[1] thetechmarketer.com
+[2] theguardian.com
+[3] cbsnews.com
+[4] channelstv.com
+[5] unitedagainstnucleariran.com
+[9] aljazeera.com
+
+---
+
 ## June 7, 2026 Update
 
 **Key Developments:**
