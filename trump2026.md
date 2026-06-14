@@ -1,5 +1,24 @@
 ---
 
+## June 9, 2026 Update
+
+**Key Developments:**
+*   **Apache Helicopter Downed:** Early Tuesday morning, a U.S. Army Apache attack helicopter crashed near the coast of Oman. President Trump blamed Iran for the incident, and U.S. Central Command subsequently launched "self-defense strikes" against Iranian targets.[1][2]
+*   **Secure America Act Passed:** House Republicans passed the **$70 billion Secure America Act**, providing full funding for Trump's immigration enforcement and border security initiatives through the remainder of his term.[2]
+*   **Denaturalization Initiative:** The Justice Department filed its first wave of cases to revoke the citizenship of 17 immigrants, signaling a major expansion of the administration's immigration policy targeting legal residents.[4]
+*   **Pilot Rescue Milestone:** Trump confirmed that two pilots from the downed Apache were safely rescued by a **U.S. military drone boat**, marking the first known drone-led rescue at sea.[2]
+*   **JFK Airport Briefing:** Before returning to D.C., Trump touted record stock market highs and claimed his policies have generated **$18 trillion** in new domestic investment.[2]
+*   **Crime Claims:** The President asserted that crime has "plummeted," citing a 95% reduction in Washington D.C. and significant drops in cities like Memphis and New Orleans.[2]
+*   **Surveillance Law Push:** Trump met with Speaker Mike Johnson to discuss the upcoming expiration of a key surveillance law and the selection of a permanent Director of National Intelligence.[3]
+
+Sources:
+[1] iowapublicradio.org
+[2] youtube.com
+[3] theguardian.com
+[4] justsecurity.org
+
+---
+
 ## June 8, 2026 Update
 
 **Key Developments:**
