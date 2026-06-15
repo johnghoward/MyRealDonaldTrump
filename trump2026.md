@@ -1,5 +1,22 @@
 ---
 
+## June 10, 2026 Update
+
+**Key Developments:**
+*   **Iran Conflict Escalation:** President Trump ordered "self-defense strikes" inside Iran, targeting air defenses and radar sites following the downing of a U.S. Apache helicopter. He accused the Iranian regime of "playing us for suckers" in peace talks and signaled a shift toward more aggressive action.[1][2]
+*   **Secure America Act Signed:** Trump signed the **$70 billion Secure America Act**, fully funding the Department of Homeland Security through the end of his term. During the ceremony, he claimed the southern border has been "closed" for 11 months with zero illegal crossings.[1]
+*   **Inflation Spike:** The May Consumer Price Index reported inflation at **4.2%**, a three-year high driven by energy shocks from the Iran war. Trump sparked controversy with a comment stating, "I love the inflation," which supporters clarified referred to "core inflation" figures.[1][2]
+*   **Strait of Hormuz Claims:** Trump claimed the U.S. has begun removing "millions of barrels" of oil from the Strait of Hormuz nightly, though specific operational details were not provided.[2]
+*   **Foreign Policy Pivot:** The President suggested that the administration may turn its focus toward **Cuba** once the Iran situation is resolved.
+*   **World Cup Monitoring:** The administration is monitoring potential labor strikes in host cities ahead of the **2026 World Cup** kickoff on June 11.[3]
+
+Sources:
+[1] youtube.com
+[2] youtube.com
+[3] theguardian.com
+
+---
+
 ## June 9, 2026 Update
 
 **Key Developments:**
