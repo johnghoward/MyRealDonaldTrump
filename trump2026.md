@@ -1,5 +1,24 @@
 ---
 
+## June 11, 2026 Update
+
+**Key Developments:**
+*   **World Cup 2026 Kickoff:** The FIFA World Cup officially began with a historic opening ceremony at the Estadio Azteca in Mexico City. President Trump's administration monitored the event as Mexico faced South Africa in the opening match of the first-ever 48-team tournament.[1][4]
+*   **Iran Diplomacy "Whiplash":** Trump dominated the news cycle with rapid policy shifts regarding Iran. After threatening to strike oil infrastructure "VERY HARD TONIGHT" in the morning, he abruptly canceled the strikes by the afternoon, claiming discussions had reached the "highest level" and a peace deal was imminent.[5][6]
+*   **Commercial Fishing Proclamation:** The President signed the **"Executive Proclamation Restoring American Commercial Fishing in the Pacific,"** opening previously restricted marine monument areas to U.S. commercial vessels under his "America First Fishing Policy."[8]
+*   **DNI Nomination:** Trump reportedly nominated former SEC Chair **Jay Clayton** to serve as the permanent Director of National Intelligence, a move seen as an attempt to stabilize the intelligence community following recent leadership shakeups.
+*   **Netanyahu Coordination:** Trump held a high-stakes call with PM Netanyahu to discuss the potential memorandum of understanding with Tehran, despite Iranian officials not yet confirming a final conclusion.[6][7]
+
+Sources:
+[1] wikipedia.org
+[4] foxsports.com
+[5] wusf.org
+[6] cbsnews.com
+[7] theguardian.com
+[8] noaa.gov
+
+---
+
 ## June 10, 2026 Update
 
 **Key Developments:**
